@@ -10,9 +10,9 @@
 
 
 
-## Summary:
+##  `Summary(Erell)`
 An international mind with a keen sensitivity to **luxury**, **fashion** and **beauty**. <br>
-**Enthusiastic**, **creative**, **detail-oriented** and a **team player** looking for the **next challenge**.
+**Enthusiastic**, **creative**, **detail-oriented** and a **team player** looking for the **next challenge**. 
 
 
 
