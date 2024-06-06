@@ -9,6 +9,15 @@
 </div>
 
 
+
+## Summary:
+An international mind with a keen sensitivity to **luxury**, **fashion** and **beauty**. <br>
+**Enthusiastic**, **creative**, **detail-oriented** and a **team player** looking for the **next challenge**.
+
+
+
+
+
 <!--
 **RLdo/RLdo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
